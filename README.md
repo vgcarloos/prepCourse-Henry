@@ -1,3 +1,1 @@
-Ya porfavor funciona 
-
-xd hgdlk
+bueno ahora si ya se que falla. 
